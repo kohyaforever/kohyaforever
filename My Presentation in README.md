@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sirce
+- 👀 I’m interested in Program Basic and Advanced Python 
+- 🌱 I’m currently learning Python and JavaScript
+- 💞️ I’m looking to collaborate on Programmers, Content Creators.
+- 📫 How to contact me? ¹-Contact me on my discord: itssirce
+- 😄 Pronouns: He
+- ⚡ Fun fact fun fact Make Streams, Upload Videos and schedule.
